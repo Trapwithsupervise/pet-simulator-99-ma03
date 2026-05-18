@@ -1,4 +1,4 @@
-#  
+#  Novo 99 nights in the forest scripts é o melhor 99 nights in the forest scripts com vitória instantânea e cura automática. Seguro, confiável e otimizado para máximo desempenho.
 
 
 
